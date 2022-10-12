@@ -1,3 +1,5 @@
+![](https://user-images.githubusercontent.com/114054661/195277040-a31f4b60-c1e1-4f35-b4b6-83246d8d7dac.jpg)
+
 <h1 align="center">Hi 👋, I'm Michal Jíra</h1>
 <h3 align="center">Hi I'm 16 years old starting programmer and gym enjoyer😎</h3>
 
@@ -11,7 +13,7 @@
 
 - 💻 Gamer : **LOL,GTA, Fortnite, CS 1.6, Assassin's Creed,**
 
-- 🎞️ Fav movies,TV series **Family Guy, Naruto, Harry Potter, Marvel, LOTR,The Hobbit**
+- 🎞️ Fav movies,TV series **Family Guy, Naruto, Harry Potter, Marvel, LOTR,The Hobbit, Star Wars**
 
 - ⚡ Fun fact **Like animals🐶**
 
@@ -26,6 +28,5 @@
 
 ![](https://user-images.githubusercontent.com/114054661/195276183-4824f0e6-abfb-4231-b8af-cda2e20e4439.jpg)
 
-![](https://user-images.githubusercontent.com/114054661/195277040-a31f4b60-c1e1-4f35-b4b6-83246d8d7dac.jpg)
 
 
