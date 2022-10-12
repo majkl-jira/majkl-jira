@@ -11,7 +11,7 @@
 
 - 💻 Gamer : **LOL,GTA, Fortnite, CS 1.6, Assassin's Creed,**
 
-- 🎞️ Fav moveies,serials **Family Guy, Naruto, Harry Potter, Marvel, LOTR,The Hobbit**
+- 🎞️ Fav movies,TV series **Family Guy, Naruto, Harry Potter, Marvel, LOTR,The Hobbit**
 
 - ⚡ Fun fact **Like animals🐶**
 
